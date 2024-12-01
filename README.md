@@ -3,4 +3,3 @@ These photos were derived from the New York Public Library’s Nature Illustrate
 Use them for whatever makes you happy. Shout outs and attributions are always appreciated.
 
 Brought to you by www.zubaplants.com a triple bottom line plant nursery.
-
